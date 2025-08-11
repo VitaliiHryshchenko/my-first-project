@@ -1,0 +1,1 @@
+reserve svč Luhačovice (trampolina 1)
